@@ -9,7 +9,8 @@ My name is Eloi Stre, and I have been a virtual reality game developer since the
 
 To raise some money, I've listed and packed all the equipment I no longer use and want to sell it as a bundle.
 
-If you're interested in this bundle, it's available for pickup at Ferrières, Belgium, for €1200.  
+If you're interested in this bundle, it's available for pickup at Ferrières, Belgium, for €1200.
+For now it is on [eBay]([@](https://www.ebay.com)) 
 ![image](https://github.com/user-attachments/assets/d43720c2-ec74-4c02-8abe-10517c38a4b3)
 
 Feel free to ping me on [LinkedIn](https://www.linkedin.com/in/eloistree/) or Discord: EloiStree.
